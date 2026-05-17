@@ -6,7 +6,15 @@
 
 <p>Grazie a questi <strong>trucchi per Dragon Ball Legends</strong>, potrai dire addio ai lunghi tempi di attesa e alle costose microtransazioni. Il nostro tool ti fornirà tutte le risorse necessarie in modo automatico e istantaneo. Potrai finalmente concentrarti sul divertimento, sulle battaglie e sul miglioramento continuo del tuo team.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dragon Ball Legends](https://tinyurl.com/ArcadeAlchemy)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ArcadeAlchemy">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
 
 <h2>Generatore di risorse illimitate: cosa puoi ottenere</h2>
 
@@ -111,4 +119,12 @@ Sì, puoi usarli ogni volta che ne hai bisogno. Non ci sono limiti.</p>
 
 <p>Approfitta ora di questa occasione unica e fai parte anche tu della community che ha scelto di giocare senza limiti. <strong>Non aspettare domani ciò che puoi ottenere oggi</strong>: clicca il pulsante qui sotto e inizia subito a utilizzare i <strong>trucchi per Dragon Ball Legends</strong>.</p>
 
-# 🔴🔴 **[👉 Clicca Qui per Scaricare i Trucchi per Dragon Ball Legends](https://tinyurl.com/ArcadeAlchemy)** 🔴🔴
+<div align="center">
+
+<h1>
+<a href="https://shr.pn/ArcadeAlchemy">
+🫵🫵 CLICCA QUI PER SCARICARE I TRUCCHI 🫵🫵
+</a>
+</h1>
+
+</div>
